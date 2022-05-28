@@ -1,2 +1,0 @@
-# gansmc.github.io
- 
